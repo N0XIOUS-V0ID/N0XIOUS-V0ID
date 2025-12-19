@@ -1,8 +1,9 @@
 <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/f37043a4-1da6-4ba4-a7fe-2dcdc714c432" />
 
 ## WIP!! 
-<img width="1194" height="245" alt="image" src="https://github.com/user-attachments/assets/aeec1ead-02e2-401f-943d-071c14ef3655" />
-<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/e708c7af-4c18-472c-ab29-199b23001d7f" />
+
+<img width="670" height="475" alt="image" src="https://github.com/user-attachments/assets/fb432817-9144-4d94-9187-e4a488d92b38" />
+
 
 <!--
 **N0XIOUS-V0ID/N0XIOUS-V0ID** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
