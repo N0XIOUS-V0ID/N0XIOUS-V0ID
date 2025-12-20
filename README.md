@@ -2,7 +2,11 @@
 
 ## WIP!! 
 
-<img width="670" height="475" alt="image" src="https://github.com/user-attachments/assets/fb432817-9144-4d94-9187-e4a488d92b38" />
+<img width="680" height="383" alt="image" src="https://github.com/user-attachments/assets/576b33ff-348e-41ee-85d6-396ab255dcdd" />
+
+## LOADING . .. .
+Subspace is me btw,, i say as i throw this into ur face
+<img width="735" height="707" alt="image" src="https://github.com/user-attachments/assets/532f7128-e3ab-4ebf-8f47-7dda9c0568d0" />
 
 
 <!--
