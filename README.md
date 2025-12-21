@@ -8,6 +8,8 @@
 Subspace is me btw,, i say as i throw this into ur face
 <img width="735" height="707" alt="image" src="https://github.com/user-attachments/assets/532f7128-e3ab-4ebf-8f47-7dda9c0568d0" />
 
+<img width="1200" height="245" alt="image" src="https://github.com/user-attachments/assets/5685be22-7966-4277-b769-0379e9752a04" />
+
 
 <!--
 **N0XIOUS-V0ID/N0XIOUS-V0ID** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
